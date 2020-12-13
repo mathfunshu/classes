@@ -1,6 +1,9 @@
 # classes
+https://mp.weixin.qq.com/s/IaFA6l4Q8x3PCyknaFvNlA
 
-https://mp.weixin.qq.com/s/G2bi-jfMHDs940H0tWr2IA
-https://mp.weixin.qq.com/s/AwV0HmTht6cdssRudx2F0A
+Math
 
+https://mp.weixin.qq.com/s/nfuWjC3I28z7zvv6HpN85w
+
+Physics
 https://mp.weixin.qq.com/s/DSFTEToaE7WlD-GD4vLLkA
